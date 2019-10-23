@@ -1,2 +1,2 @@
 # note1
-i do not know the note1 about
+i do not know what my attempt is about
